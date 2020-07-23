@@ -2,11 +2,11 @@
 
 
 ![Branching](4162e4c2bc8cfc7c1_1.jpg)
-###  Origin. 
+###  Origin
 
 Opinions about the origin of this dog are controversial: it is not known whether this breed was bred in France, Germany, Denmark or Piedmont. However, it has been established that the poodle is descended from the extremely rare French water dog - the barbet.
 
-###  Description. 
+###  Description
 There are three varieties of poodle: standard, miniature and toy poodle. The height of a standard poodle is 38 cm and above, a miniature one is at least 25.4 cm and no more than 38 cm, a toy poodle is less than 25.4 cm. Average weight: 22.12 and 7 kg, respectively. The poodle has a noble, regular, proportional head in relation to the body. In black, white, blue, silver and cream dogs, the nose should be black, and in brown and coffee poodles, it should be dark chestnut. They have a regular skull, thin cheeks, and a scissor bite. The eyes are black or brown, the look is lively. The ears hang along the cheeks and are covered with wavy hair. The neck is firm, slightly arched. The head is held up proudly. The tail is docked by half or two-thirds. Wool in curls or cords. The color is always solid, any of the above colors. These dogs must be regularly sheared “like a lion” or “like a sheep.” Other haircuts are not allowed at the shows.
 
 ###  Character
